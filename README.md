@@ -1,0 +1,1 @@
+# characters_lab6
